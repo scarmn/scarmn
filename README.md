@@ -2,4 +2,5 @@
 
 ## Estudante do curso de Desenvolvimento de Sistemas 
 
-![17399065001777156593945111731870](https://github.com/user-attachments/assets/d99bdcd4-7466-4a95-bc9a-13380906dc54)
+![1739908346121918700618075264635](https://github.com/user-attachments/assets/fb20e0b4-f146-4918-8797-62867675b3cf)
+
