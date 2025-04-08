@@ -1,4 +1,4 @@
-# Anny ｡𖦹°‧
+# ⋆˚࿔ Anny 
 
 ## Estudante do curso de Desenvolvimento de Sistemas 
 
